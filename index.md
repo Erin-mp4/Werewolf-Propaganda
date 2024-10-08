@@ -1,9 +1,0 @@
-## You Should Dress Up as a Werewolf this Halloween
-
-![Alt text](https://images.unsplash.com/photo-1559919449-79099f7e2966?q=80&w=2531&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D "Photo by Tim Umphreys")
-### And I'm not Kidding
-Of all the monsters popularized by old black-and-white Universal movies, the vampire has reigned supreme for far too long. The concept of the werewolf has existed in human consciousness for just as long, if not longer, yet they are reduced to playing second fiddle in the wake of a century of vampire movies. This webpage acts as werewolf propaganda, containing information on how the legend of the werewolf has grown through historical folklore, written fiction, and movies.
-
-| [**Folklore**](https://www.youtube.com/watch?v=dQw4w9WgXcQ)                                                                     | [**Books**](https://www.youtube.com/watch?v=dQw4w9WgXcQ)                                                                                          | [**Movies**](https://www.youtube.com/watch?v=dQw4w9WgXcQ)                                            |
-| ------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------- | ---------------------------------------------------------------------------------------------------- |
-| From a term coined in the Roman empire, to accusations in the witch trials, werewolves have been around for a *very* long time. | One of the earliest werewolves in fiction comes from supposedly translated texts in the 12th century. And then one of them goes to Paris in 1870. | From Universal Studios *The Wolf Man* to *Twilight* of all things. How in the world did we get here? |
